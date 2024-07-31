@@ -4,3 +4,4 @@
 
 #### Created by: Loksy_
 #### AfterLeaks: https://discord.gg/QmV9JZdtZ8
+#### PS: Neqquz uwarza sie za wielkiego arystrokate (jest gejem)(chciał mnie wyruchać)(wczoraj)
